@@ -1,5 +1,2 @@
 - 👋 Hi, I’m @hadjoudjmounia
-- 👀 I’m interested in art 
-- 🌱 I’m currently an architercture student 
-- 💞️ I’m looking to collaborate on a project
-- 📫 How to reach me hadjoudjmounia@gmail.com
+[ماجستير.docx](https://github.com/hadjoudjmounia/hadjoudjmounia/files/7688997/default.docx)
